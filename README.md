@@ -6,7 +6,7 @@
 
 ### https://kbsp.fun
 
-### https://5mo.fun
+### https://www.5mo.fun
 
 ### https://rinv.cc
 
